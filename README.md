@@ -1,2 +1,3 @@
 # Learn It
-## Aprenda inglês rápido e sem complicação
+## Aprenda Inglês de maneira rápida e prática.
+
